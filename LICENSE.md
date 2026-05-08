@@ -1,4 +1,4 @@
-
+Enhance Ulysses for macOS with best Macro for Ulysses for macOS - custom shortcuts and offline access, the #1 macro. Includes custom shortcuts and offline access for a smoother
 
 
 
